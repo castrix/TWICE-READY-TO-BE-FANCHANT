@@ -17,100 +17,100 @@ for suggestion/feedback, please dm my IG
   <summary>Click me to open fanchant</summary>
 
 
-***(teu.wa.i.seu.set.mi.peu.ri)***
+<u>***(teu.wa.i.seu.set.mi.peu.ri)***</u>
 
-modeun geol ileobeorindaedo ***sanggwan eopseo***
+modeun geol ileobeorindaedo <u>***sanggwan eopseo***</u>
 
 jigeum i gamjeongi sunganira haedo
 
-ijeneun deo isang nae mam ***sumgigin shireo***
+ijeneun deo isang nae mam <u>***sumgigin shireo***</u>
 
 ne nunbichi nal jayuropge mandeuljana
 
 
 
-***No No No No No***
+<u>***No No No No No***</u>
 
 uisikaji malgo nal anajwo
 
 deoneun ileul geotdo sumgil geotdo eopseo 
 
-***[cheer]***
+<u>***[cheer]***</u>
 
 
-nae modeun geol georeo ***Risk it all***
+nae modeun geol georeo <u>***Risk it all***</u>
 
-i sarang malgoneun ***Fade out***
+i sarang malgoneun <u>***Fade out***</u>
 
-Gonna set me ***set me set me free***
+Gonna set me <u>***set me set me free***</u>
 
 nae mam kkeutkkaji gal teni
 
 neon geunyang nal aneumyeon dwae
 
-Come and ***set me set me set me free***
+Come and <u>***set me set me set me free***</u>
 
 
 
-naega wonhadeon Best of Me ***(najeongmo)***
+naega wonhadeon Best of Me <u>***(najeongmo)***</u>
 
-ije naneun ready to be ***(sajimi)***
+ije naneun ready to be <u>***(sajimi)***</u>
 
-Yeah gonna ***set me set me set me free (dachaejjeu)***
+Yeah gonna <u>***set me set me set me free (dachaejjeu)***</u>
 
 jigeum All eyes on me
 
-nareul anajwo da borandeusi ***(teuwaiseu)***
+nareul anajwo da borandeusi <u>***(teuwaiseu)***</u>
 
-Yeah come and ***set me set me set me free***
+Yeah come and <u>***set me set me set me free***</u>
 
 
 
-eoriseogeun chungdongira haedo ***sanggwan eopseo***
+eoriseogeun chungdongira haedo <u>***sanggwan eopseo***</u>
 
 nal gaduneun siseon ttawin imi Outta sight
 
-jigeum urin naega kkumkkwowatdeon ***geudaero***
+jigeum urin naega kkumkkwowatdeon <u>***geudaero***</u>
 
 nunape geuryeojin wanbyeokan Fantasy
 
 
 
-***No No No No No***
+<u>***No No No No No***</u>
 
 singyeong sseujimalgo nal anajwo
 
 deoneun ileul geotdo sumgil geotdo eopseo 
 
-***[cheer]***
+<u>***[cheer]***</u>
 
 
 
-nae modeun geol georeo ***Risk it all***
+nae modeun geol georeo <u>***Risk it all***</u>
 
-i sarang malgoneun ***Fade out***
+i sarang malgoneun <u>***Fade out***</u>
 
-Gonna ***set me set me set me free***
+Gonna <u>***set me set me set me free***</u>
 
 nae mam kkeutkkaji gal teni
 
 neon geunyang nal aneumyeon dwae
 
-Come and ***set me set me set me free***
+Come and <u>***set me set me set me free***</u>
 
 
 
-naega wonhadeon Best of Me ***(najeongmo)***
+naega wonhadeon Best of Me <u>***(najeongmo)***</u>
 
-ije naneun ready to be ***(sajimi)***
+ije naneun ready to be <u>***(sajimi)***</u>
 
-Yeah gonna ***set me set me set me free (dachaejjeu)***
+Yeah gonna <u>***set me set me set me free (dachaejjeu)***</u>
 
 jigeum All eyes on me
 
-nareul anajwo da borandeusi ***(teuwaiseu)***
+nareul anajwo da borandeusi <u>***(teuwaiseu)***</u>
 
-Yeah come and ***set me set me set me free***
+Yeah come and <u>***set me set me set me free***</u>
 
 
 
@@ -118,43 +118,43 @@ I’m gonna tell you straight
 
 No matter what they say (ei~)
 
-du jeomeul inneun Line an kkeunkyeo ***All my TWICE***
+du jeomeul inneun Line an kkeunkyeo <u>***All my TWICE***</u>
 
 budichigo neomeojyeodo ireukyeo nal
 
-du nuni matdaeul ttaen ***Make me feel special***
+du nuni matdaeul ttaen <u>***Make me feel special***</u>
 
 neoro inhae wanjeonhan naro Completed
 
-i mal mideodo dwae cause ***this is official uh!***
+i mal mideodo dwae cause <u>***this is official uh!***</u>
 
 
 
-nae modeun geol georeo ***Risk it all***
+nae modeun geol georeo <u>***Risk it all***</u>
 
-i sarang malgoneun ***Fade out***
+i sarang malgoneun <u>***Fade out***</u>
 
-Gonna ***set me set me set me free***
+Gonna <u>***set me set me set me free***</u>
 
 nae mam kkeutkkaji gal teni
 
 neon geunyang nal aneumyeon dwae
 
-Come and ***set me set me set me free***
+Come and <u>***set me set me set me free***</u>
 
 
 
-naega wonhadeon Best of Me ***(najeongmo)***
+naega wonhadeon Best of Me <u>***(najeongmo)***</u>
 
-ije naneun ready to be ***(sajimi)***
+ije naneun ready to be <u>***(sajimi)***</u>
 
-Yeah gonna ***set me set me set me free*** ***(dachaejjeu)***
+Yeah gonna <u>***set me set me set me free***</u> <u>***(dachaejjeu)***</u>
 
 jigeum All eyes on me
 
-nareul anajwo da borandeusi ***(teuwaiseu)***
+nareul anajwo da borandeusi <u>***(teuwaiseu)***</u>
 
-Yeah come and ***set me set me set me free***
+Yeah come and <u>***set me set me set me free***</u>
 
 
 </details>
@@ -166,123 +166,123 @@ Yeah come and ***set me set me set me free***
   <summary>Click me to open fanchant</summary>
 
 
-***(neomuna jjarithae teu! wa! i! seu!)***
+<u>***(neomuna jjarithae teu! wa! i! seu!)***</u>
 
 
 
-allami ullyeodae ***Ring ring a ling***
+allami ullyeodae <u>***Ring ring a ling***</u>
 
 seoroe nungiri daeul ttaemada
 
-almyeonseo ***bingbing doneunde***
+almyeonseo <u>***bingbing doneunde***</u>
 
 jeomjeom dagagajana I know it’s too late
 
 
 
-***maeumsogeuroneun*** da algo itjana
+<u>***maeumsogeuroneun***</u> da algo itjana
 
 gyeolgugeneun seoneul neomge dwel georaneun geol
 
-***I’m warning to myself***
+<u>***I’m warning to myself***</u>
 
 neo geureomyeon an dwae
 
 maebun, maecho, nae mami nae mameul chuwolhae
 
-***Out of control (TWICE!)***
+<u>***Out of control (TWICE!)***</u>
 
 
 
-nareul gamsihaneun jeo ***Spot spot spotlight***
+nareul gamsihaneun jeo <u>***Spot spot spotlight***</u>
 
 bichulsurok eodum sogeuro ppallyeo deureo
 
-kkeuchi boineunde ***I know it’s not right***
+kkeuchi boineunde <u>***I know it’s not right***</u>
 
-I can’t stop me, can’t stop me ***(No eouo Ha!)***
+I can’t stop me, can’t stop me <u>***(No eouo Ha!)***</u>
 
-nae ape noyeojin i ***Red red red line***
+nae ape noyeojin i <u>***Red red red line***</u>
 
 geonneopyeone neowa nan imi nuneul matchwo
 
-neukkigo sipeo ***jjarithan Highlight***
+neukkigo sipeo <u>***jjarithan Highlight***</u>
 
-I can’t stop me, can’t stop me ***(No eouo)***
+I can’t stop me, can’t stop me <u>***(No eouo)***</u>
 
 
 
-Ooh Ooh Ooh Ooh ***(najeongmo)***
+Ooh Ooh Ooh Ooh <u>***(najeongmo)***</u>
 
-Ooh Ooh Ooh Ooh ***(sajimi)***
+Ooh Ooh Ooh Ooh <u>***(sajimi)***</u>
 
-Ooh Ooh Ooh Ooh ***(dachaejjeu)***
+Ooh Ooh Ooh Ooh <u>***(dachaejjeu)***</u>
 
 I can’t stop me, can’t stop me
 
 
 
-nungama dallagu ***Ya ya***
+nungama dallagu <u>***Ya ya***</u>
 
-ttak han beonman No rules ***Ah ah***
+ttak han beonman No rules <u>***Ah ah***</u>
 
-moreun cheokae jwo Lights off ***tonight***
+moreun cheokae jwo Lights off <u>***tonight***</u>
 
 na chameul su eopseul geo gata Losing myself
 
 
 
-ijeneun ***Turning back***
+ijeneun <u>***Turning back***</u>
 
 bulganeunghae nan jeomjeom deo gipeun eodume
 
-neomuna ***jjarithae***
+neomuna <u>***jjarithae***</u>
 
 na nuneul gameullae
 
 dasineun doragal su eopseul geonman gatae
 
-***Out of control (TWICE!)***
+<u>***Out of control (TWICE!)***</u>
 
 
 
-nareul gamsihaneun jeo ***Spot spot spotlight***
+nareul gamsihaneun jeo <u>***Spot spot spotlight***</u>
 
 bichulsurok eodum sogeuro ppallyeo deureo
 
-kkeuchi boineunde ***I know it’s not right***
+kkeuchi boineunde <u>***I know it’s not right***</u>
 
-I can’t stop me, can’t stop me ***(No eouo Ha!)***
+I can’t stop me, can’t stop me <u>***(No eouo Ha!)***</u>
 
-nae ape noyeojin i ***Red red red line***
+nae ape noyeojin i <u>***Red red red line***</u>
 
 geonneopyeone neowa nan imi nuneul matchwo
 
-neukkigo sipeo ***jjarithan Highlight***
+neukkigo sipeo <u>***jjarithan Highlight***</u>
 
-I can’t stop me, can’t stop me ***(No eouo)***
+I can’t stop me, can’t stop me <u>***(No eouo)***</u>
 
 
 
 Risky risky wiggy wigi
 
-***This is an emergency***
+<u>***This is an emergency***</u>
 
 Help me, help me, somebody stop me
 
-***Cuz I know I can’t stop me***
+<u>***Cuz I know I can’t stop me***</u>
 
 dabeun algo itjana
 
-***geunde gago itjana***
+<u>***geunde gago itjana***</u>
 
 ireogo sipji ana
 
-nae ane naega ***tto inna bwa***
+nae ane naega <u>***tto inna bwa***</u>
 
 
 
-***[cheer]*** naneun wonhaneunde
+<u>***[cheer]***</u> naneun wonhaneunde
 
 wonhaneun ge andwae
 
@@ -292,41 +292,41 @@ I can’t stop me, can’t stop me, can’t stop me
 
 
 
-nareul gamsihaneun jeo ***Spot spot spotlight***
+nareul gamsihaneun jeo <u>***Spot spot spotlight***</u>
 
 bichulsurok eodum sogeuro ppallyeo deureo
 
-kkeuchi boineunde ***I know it’s not right***
+kkeuchi boineunde <u>***I know it’s not right***</u>
 
-I can’t stop me, can’t stop me ***(No eouo Ha!)***
+I can’t stop me, can’t stop me <u>***(No eouo Ha!)***</u>
 
 nae ape noyeojin i Red red red line
 
 geonneopyeone neowa nan imi nuneul matchwo
 
-neukkigo sipeo ***jjarithan Highlight***
+neukkigo sipeo <u>***jjarithan Highlight***</u>
 
-I can’t stop me, can’t stop me ***(No eouo)***
+I can’t stop me, can’t stop me <u>***(No eouo)***</u>
 
 
 
-***(imnayeon yujeongyeon momojjang sanajjang)
+<u>***(imnayeon yujeongyeon momojjang sanajjang)
 
 (bakjihyo minajjang gimdahyeon sonchaeyeong)
 
-(jojjeuwi jjarithae ai! kaen! seutap! mi!)***
+(jojjeuwi jjarithae ai! kaen! seutap! mi!)***</u>
 
 I can’t stop me, can’t stop me
 
 
 
-Ooh Ooh Ooh Ooh ***(najeongmo)***
+Ooh Ooh Ooh Ooh <u>***(najeongmo)***</u>
 
-Ooh Ooh Ooh Ooh ***(sajimi)***
+Ooh Ooh Ooh Ooh <u>***(sajimi)***</u>
 
-Ooh Ooh Ooh Ooh ***(dachaejjeu)***
+Ooh Ooh Ooh Ooh <u>***(dachaejjeu)***</u>
 
-***(bichulsurok ppajyeodeureo teu! wa! i! seu!)***
+<u>***(bichulsurok ppajyeodeureo teu! wa! i! seu!)***</u>
 
 
 </details>
@@ -345,11 +345,11 @@ I know I want it
 
 ibe bareun sorin ije geumanhalge
 
-Cause I deserve it deserve it
+Cause I deserve it <u>***deserve it***</u>
 
 hoksi jamkkan naega miwojideorado geokjeong an halge
 
-Cause I know you I know you
+Cause I know you <u>***I know you***</u>
 
 
 
@@ -367,31 +367,31 @@ You are gonna be mine again
 
 
 
-You’re gonna say more more more more more and more
+You’re gonna say <u>***more more more more more and more***</u>
 
 meomchuji mothae More more more and more
 
 geureoni han beon deo
 
-I wanna have more more more more more and more
+I wanna have <u>***more more more more more and more***</u>
 
-meomchugi sileo More more more and more
+meomchugi sileo <u>***More more more and more***</u>
 
-geureoni han beon deo (TWICE)
+geureoni han beon deo <u>***(TWICE)***</u>
 
 
 
 meomchujireul mothae
 
-More and more
+<u>***More and more***</u>
 
-geureoni han beon deo (deo)
+geureoni han beon deo <u>***(deo)***</u>
 
 meomchugiga sileo
 
-More and more
+<u>***More and more***</u>
 
-geureoni han beon deo (TWICE)
+geureoni han beon deo <u>***(TWICE)***</u>
 
 
 
@@ -399,23 +399,23 @@ Do you feel me
 
 niga nal wihan saramirago minni
 
-Only for me only for me
+Only for me <u>***only for me***</u>
 
 ganjireoun mareun guji haji anado neon
 
-Cause you know me you know me
+Cause you know me <u>***you know me***</u>
 
 
 
-ne gwireul jakku magado (hey)
+ne gwireul jakku magado <u>***(hey)***</u>
 
-nareul meolli mireonaedo (hey)
+nareul meolli mireonaedo <u>***(hey)***</u>
 
 naegeseo meoreojyeodo (jeo meolli) No no
 
-naega dasi neol bureumyeon (hey)
+naega dasi neol bureumyeon <u>***(hey)***</u>
 
-naye moksoril deureumyeon (hey)
+naye moksoril deureumyeon <u>***(hey)***</u>
 
 You are gonna be mine again
 
@@ -423,57 +423,57 @@ Yeah han beon deo
 
 
 
-You’re gonna say more more more more more and more
+You’re gonna say <u>***more more more more more and more***</u>
 
-meomchuji mothae More more more and more
+meomchuji mothae <u>***More more more and more***</u>
 
 geureoni han beon deo
 
-I wanna have more more more more more and more
+I wanna have more <u>***more more more more and more***</u>
 
-meomchugi sileo More more more and more
+meomchugi sileo <u>***More more more and more***</u>
 
-geureoni han beon deo (TWICE)
+geureoni han beon deo <u>***(TWICE)***</u>
 
 
 
 meomchujireul mothae
 
-More and more
+<u>***More and more***</u>
 
-geureoni han beon deo (deo)
+geureoni han beon deo <u>***(deo)***</u>
 
 meomchugiga sileo
 
-More and more
+<u>***More and more***</u>
 
-geureoni han beon deo (TWICE)
+geureoni han beon deo <u>***(TWICE)***</u>
 
 
 
-(Im Nayeon! Yoo Jeongyeon! Momojjang! Sanajjang! Park Jihyo!)
+<u>***(Im Nayeon! Yoo Jeongyeon! Momojjang! Sanajjang! Park Jihyo!)
 
 (Minajjang! Kim Dahyun! Son Chaeyeong! Cho Jjeuwi!)
 
 (geureoni han beondeo)
 
-(najeongmo! sajimi! dachaejjeu!) [cheer]
+(najeongmo! sajimi! dachaejjeu!) [cheer]***</u>
 
 
 
-nan wollae yoksimjaengi mollatdamyeon mian
+nan wollae yoksimjaengi mollatdamyeon <u>***mian***</u>
 
-sagwaneun miri halge Cuz I want you more more
+sagwaneun miri halge Cuz I want you <u>***more more***</u>
 
-uigyeoneun pillyo eopseo humchil geoya ne mam
+uigyeoneun pillyo eopseo humchil geoya <u>***ne mam***</u>
 
-naege hollige doelgeol You can’t say no no
+naege hollige doelgeol You can’t say <u>***no no***</u>
 
-nan dodukgoyangi oneulmaneun neol
+nan dodukgoyangi <u>***oneulmaneun neol***</u>
 
-kkok jabeureo wasseunikka ttak gidaryeo neo
+kkok jabeureo wasseunikka <u>***ttak gidaryeo neo***</u>
 
-meolli gaji malgo dasi naege Come come
+meolli gaji malgo dasi naege <u>***Come come***</u>
 
 Yeah han beon deo
 
@@ -481,15 +481,15 @@ Yeah han beon deo
 
 meomchujireul mothae
 
-More and more
+<u>***More and more***</u>
 
-geureoni han beon deo (deo)
+geureoni han beon deo <u>***(deo)***</u>
 
 meomchugiga sileo
 
-More and more
+<u>***More and more***</u>
 
-geureoni han beon deo (TWICE)
+geureoni han beon deo <u>***(TWICE)***</u>
 
 
 </details>
@@ -524,11 +524,11 @@ geureoni han beon deo (TWICE)
 
 You make me feel special
 
-(najeongmo! sajimi! dachaejjeu!)
+<u>***(najeongmo! sajimi! dachaejjeu!)
 
 (hamkkeyeoseohaengbokae)
 
-(wonseu! teuwaiseu! jalhaja~!)
+(wonseu! teuwaiseu! jalhaja~!)***</u>
 
 
 
@@ -538,13 +538,13 @@ gapjagi honjain geonman gateun nal
 
 eodil gado nae jariga anin geonman gatgo
 
-gogaen tteolgwojineun nal
+<u>***gogaen tteolgwojineun nal***</u>
 
 
 
 geureol ttae mada naege
 
-eolmana naega sojunghanji mal
+<u>***eolmana naega sojunghanji mal***</u>
 
 haejuneun neoye geu hanmadie
 
@@ -552,45 +552,45 @@ Everything’s alright
 
 chorahan nobodyeseo dasi somebody
 
-teukbyeolhan naro byeonhae
+<u>***teukbyeolhan naro byeonhae***</u>
 
 
 
-You make me feel special
+<u>***You make me feel special***</u>
 
 sesangi amuri nal jujeo anchyeodo
 
 apeugo apeun maldeuri nal jjilleodo
 
-nega isseo nan dasi useo
+<u>***nega isseo nan dasi useo***</u>
 
 That’s what you do
 
-Again I feel special
+<u>***Again I feel special***</u>
 
 amu geotdo anin jonjae gatdagado
 
 sarajyeodo moreul saram gatdagado
 
-nal bureuneun ne moksorie
+<u>***nal bureuneun ne moksorie***</u>
 
 I feel loved, I feel so special
 
 
 
-jakku sumgoman sipeoseo
+<u>***jakku***</u> sumgoman sipeoseo
 
-maju hagiga sileosseo
+<u>***maju***</u> hagiga sileosseo
 
 modeun ge uimireul ileun deusi
 
 naega uimireul ileun deusi gamanhi
 
-jujeo anja isseul ttae
+<u>***jujeo anja isseul ttae***</u>
 
 
 
-geu ttae nae ape natanan neoye
+<u>***geu ttae nae ape natanan neoye***</u>
 
 ttatteuthan misowa songire
 
@@ -598,41 +598,41 @@ Everything’s alright
 
 chorahan nobodyeseo dasi somebody
 
-teukbyeolhan naro byeonhae
+<u>***teukbyeolhan naro byeonhae***</u>
 
 
 
-You make me feel special
+<u>***You make me feel special***</u>
 
 sesangi amuri nal jujeo anchyeodo
 
 apeugo apeun maldeuri nal jjilleodo
 
-nega isseo nan dasi useo
+<u>***nega isseo nan dasi useo***</u>
 
 That’s what you do
 
-Again I feel special
+<u>***Again I feel special***</u>
 
 amu geotdo anin jonjae gatdagado
 
 sarajyeodo moreul saram gatdagado
 
-nal bureuneun ne moksorie
+<u>***nal bureuneun ne moksorie***</u>
 
 I feel loved, I feel so special
 
 
 
-Oh~ You make everything alright
+<u>***Oh~ You make everything alright***</u>
 
-gureumi jjwak kkin haetsal han jum eomneun nal
+gureumi jjwak kkin <u>***haetsal han jum eomneun nal***</u>
 
-nega baro naye shining light (ei~)
+nega baro naye <u>***shining light (ei~)***</u>
 
 That’s what you do
 
-amuri eoduun bamdo dasi nat (Oh~)
+amuri eoduun bamdo dasi nat <u>***(Oh~)***</u>
 
 I owe it to you
 
@@ -640,29 +640,29 @@ Because you make me feel
 
 
 
-You make me feel special [cheer]
+You make me feel special <u>***[cheer]***</u>
 
 sesangi amuri nal jujeo anchyeodo
 
 apeugo apeun maldeuri nal jjilleodo
 
-nega isseo nan dasi useo
+<u>***nega isseo nan dasi useo***</u>
 
 That’s what you do
 
-Again I feel special
+<u>***Again I feel special***</u>
 
 amu geotdo anin jonjae gatdagado
 
 sarajyeodo moreul saram gatdagado
 
-nal bureuneun ne moksorie
+<u>***nal bureuneun ne moksorie***</u>
 
 I feel loved, I feel so special
 
 
 
-(Im Nayeon! Yoo Jeongyeon! Momojjang!)
+<u>***(Im Nayeon! Yoo Jeongyeon! Momojjang!)
 
 (Sanajjang! Park Jihyo! Minajjang!)
 
@@ -672,7 +672,7 @@ I feel loved, I feel so special
 
 (nunbusige saranghae)
 
-(teu.wa.i.seu!)
+(teu.wa.i.seu!)***</u>
 
 
 </details>

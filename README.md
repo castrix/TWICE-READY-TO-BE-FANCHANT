@@ -8,7 +8,7 @@ Twitter: [IhsanFajar20](https://twitter.com/IhsanFajar20)
 
 for suggestion/feedback, please dm my IG
 
-[Note: will edit this further (to make it prettier) before the jakarta concert on 23rd December 2023]
+[Note: will tweak this further (to make it prettier) before the jakarta concert on 23rd December 2023]
 
 ## 1 "Set Me Free" (English ver.)
 

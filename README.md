@@ -451,13 +451,13 @@ geureoni han beon deo <ins>***(TWICE)***</ins>
 
 
 
-<ins>***(Im Nayeon! Yoo Jeongyeon! Momojjang! Sanajjang! Park Jihyo!)
+<ins>***(Im Nayeon! Yoo Jeongyeon! Momojjang! Sanajjang! Park Jihyo!)***</ins>
 
-(Minajjang! Kim Dahyun! Son Chaeyeong! Cho Jjeuwi!)
+<ins>***(Minajjang! Kim Dahyun! Son Chaeyeong! Cho Jjeuwi!)***</ins>
 
-(geureoni han beondeo)
+<ins>***(geureoni han beondeo)***</ins>
 
-(najeongmo! sajimi! dachaejjeu!) [cheer]***</ins>
+<ins>***(najeongmo! sajimi! dachaejjeu!) [cheer]***</ins>
 
 
 

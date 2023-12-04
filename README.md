@@ -524,11 +524,11 @@ geureoni han beon deo <ins>***(TWICE)***</ins>
 
 You make me feel special
 
-<ins>***(najeongmo! sajimi! dachaejjeu!)
+<ins>***(najeongmo! sajimi! dachaejjeu!)***</ins>
 
-(hamkkeyeoseohaengbokae)
+<ins>***(hamkkeyeoseohaengbokae)***</ins>
 
-(wonseu! teuwaiseu! jalhaja~!)***</ins>
+<ins>***(wonseu! teuwaiseu! jalhaja~!)***</ins>
 
 
 
@@ -662,17 +662,17 @@ I feel loved, I feel so special
 
 
 
-<ins>***(Im Nayeon! Yoo Jeongyeon! Momojjang!)
+<ins>***(Im Nayeon! Yoo Jeongyeon! Momojjang!)***</ins>
 
-(Sanajjang! Park Jihyo! Minajjang!)
+<ins>***(Sanajjang! Park Jihyo! Minajjang!)***</ins>
 
-(Kim Dahyun! Son Chaeyoung! Cho Jjeuwi!)
+<ins>***(Kim Dahyun! Son Chaeyoung! Cho Jjeuwi!)***</ins>
 
-(wonineo millieon)
+<ins>***(wonineo millieon)***</ins>
 
-(nunbusige saranghae)
+<ins>***(nunbusige saranghae)***</ins>
 
-(teu.wa.i.seu!)***</ins>
+<ins>***(teu.wa.i.seu!)***</ins>
 
 
 </details>

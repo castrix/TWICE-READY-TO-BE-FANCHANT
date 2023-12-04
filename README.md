@@ -2765,3 +2765,154 @@ not available
 ## 26 "Crazy Stupid Love"
 
 ## TT
+
+<details>
+
+  <summary>Click me to open fanchant</summary>
+
+(im nayeon! yoo jeongyeon! momo-jjang! sana-jjang!
+
+park jihyo! mina-jjang! kim dahyun! son chaeyoung! chou tzuyu!
+
+won ineo millieon! sesange dan hanappunin teu.wa.i.seu)
+
+
+
+ireojido mothaneunde jeoreojido mothane
+
+geujeo barabomyeo ba-ba-ba-baby
+
+maeil sangsangman hae ireumgwa hamkke sseuk mareul nwanne baby
+
+ajik urin moreuneun sainde
+
+
+
+amugeona geolchyeodo areumdawo (dawo)
+
+geoul sok dan duriseo haneun fashion show show
+
+
+
+ibeonen jeongmal kkokkkok 
+
+naega meonjeo talk talk
+
+dajim ppuningeol maebeon dajim ppuningeol
+
+
+
+nanananananana konnoraega naodaga nado mollae
+
+nunmul nal geot gatae anin geot gatae naega anin geot gatae
+
+I love you so much
+
+
+
+imi nan da keotdago saenggakaneunde (ppang!)
+
+eojjeomyeon nae maminde wae
+
+nae mamdaero hal su eomneun geon wae
+
+mireonaeryeogo hamyeon halsurok
+
+jakku kkeullyeo wae jakku jakku kkeullyeo baby
+
+
+
+I’m like TT Just like TT
+
+ireon nae mam moreugo neomuhae neomuhae
+
+I’m like TT (Ah~)
+
+Just like TT (Ah~)
+
+Tell me that you’d be my baby
+
+
+
+[cheer] eocheoguni eopdago hae eolgul gapseul mothandae
+
+jeonhyeo wiro andwae ba-ba-ba-baby
+
+michil geot gatae i wajunge wae baeneun tto gopeun geonde
+
+haru jongil meokgiman haneunde
+
+
+
+maemmaemaemae amu jwedo eomneun inhyeongman ttaejji
+
+jongil anjaitdaga eopdeuryeotda sigani hwekwekwek
+
+pibuneun wae ireoke tto chikchik
+
+jakku tiktik georigo man sipji
+
+eomman gwichanke gyesok waewaewaewaewae
+
+
+
+nanananananana konnoraega naodaga nado mollae
+
+jjajeungnal geot gatae hwanal geot gatae ireon aega aninde
+
+I love you so much
+
+
+
+imi nan da keotdago saenggakaneunde (ppang!)
+
+eojjeomyeon nae maminde wae
+
+nae mamdaero hal su eomneun geon wae
+
+mireonaeryeogo hamyeon halsurok
+
+jakku kkeullyeo wae jakku jakku kkeullyeo baby
+
+
+
+I’m like TT Just like TT
+
+ireon nae mam moreugo neomuhae neomuhae
+
+Tell me that you’d be my baby
+
+
+
+idaero sarajyeo beorimyeon andwaeyo
+
+ibeonen jeongmal kkokkkok naega meonjeo talk talk
+
+dajim ppuningeol maebeon dajim ppuningeol
+
+
+
+[cheer] imi nan da keotdago saenggakaneunde
+
+eojjeomyeon nae maminde wae
+
+nae mamdaero hal su eomneun geon wae
+
+mireonaeryeogo hamyeon halsurok
+
+jakku kkeullyeo wae jakku jakku kkeullyeo baby
+
+
+
+I’m like TT Just like TT
+
+ireon nae mam moreugo neomuhae neomuhae‘
+
+I’m like TT (Ah~)
+
+Just like TT (Ah~)
+
+Tell me that you’d be my baby
+
+
+</details>

@@ -17,97 +17,100 @@ for suggestion/feedback, please dm my IG
   <summary>Click me to open fanchant</summary>
 
 
-(teu.wa.i.seu.set.mi.peu.ri)
+**(teu.wa.i.seu.set.mi.peu.ri)**
 
-modeun geol ileobeorindaedo sanggwan eopseo
+modeun geol ileobeorindaedo **sanggwan eopseo**
 
 jigeum i gamjeongi sunganira haedo
 
-ijeneun deo isang nae mam sumgigin shireo
+ijeneun deo isang nae mam **sumgigin shireo**
 
 ne nunbichi nal jayuropge mandeuljana
 
 
 
-No No No No No
+**No No No No No**
 
 uisikaji malgo nal anajwo
 
-deoneun ileul geotdo sumgil geotdo eopseo [cheer]
+deoneun ileul geotdo sumgil geotdo eopseo 
+
+**[cheer]**
 
 
+nae modeun geol georeo **Risk it all**
 
-nae modeun geol georeo Risk it all
+i sarang malgoneun **Fade out**
 
-i sarang malgoneun Fade out
-
-Gonna set me set me set me free
+Gonna set me **set me set me free**
 
 nae mam kkeutkkaji gal teni
 
 neon geunyang nal aneumyeon dwae
 
-Come and set me set me set me free
+Come and **set me set me set me free**
 
 
 
-naega wonhadeon Best of Me (najeongmo)
+naega wonhadeon Best of Me **(najeongmo)**
 
-ije naneun ready to be (sajimi)
+ije naneun ready to be **(sajimi)**
 
-Yeah gonna set me set me set me free (dachaejjeu)
+Yeah gonna **set me set me set me free (dachaejjeu)**
 
 jigeum All eyes on me
 
-nareul anajwo da borandeusi (teuwaiseu)
+nareul anajwo da borandeusi **(teuwaiseu)**
 
-Yeah come and set me set me set me free
+Yeah come and **set me set me set me free**
 
 
 
-eoriseogeun chungdongira haedo sanggwan eopseo
+eoriseogeun chungdongira haedo **sanggwan eopseo**
 
 nal gaduneun siseon ttawin imi Outta sight
 
-jigeum urin naega kkumkkwowatdeon geudaero
+jigeum urin naega kkumkkwowatdeon **geudaero**
 
 nunape geuryeojin wanbyeokan Fantasy
 
 
 
-No No No No No
+**No No No No No**
 
 singyeong sseujimalgo nal anajwo
 
-deoneun ileul geotdo sumgil geotdo eopseo [cheer]
+deoneun ileul geotdo sumgil geotdo eopseo 
+
+**[cheer]**
 
 
 
-nae modeun geol georeo Risk it all
+nae modeun geol georeo **Risk it all**
 
-i sarang malgoneun Fade out
+i sarang malgoneun **Fade out**
 
-Gonna set me set me set me free
+Gonna **set me set me set me free**
 
 nae mam kkeutkkaji gal teni
 
 neon geunyang nal aneumyeon dwae
 
-Come and set me set me set me free
+Come and **set me set me set me free**
 
 
 
-naega wonhadeon Best of Me (najeongmo)
+naega wonhadeon Best of Me **(najeongmo)**
 
-ije naneun ready to be (sajimi)
+ije naneun ready to be **(sajimi)**
 
-Yeah gonna set me set me set me free (dachaejjeu)
+Yeah gonna **set me set me set me free (dachaejjeu)**
 
 jigeum All eyes on me
 
-nareul anajwo da borandeusi (teuwaiseu)
+nareul anajwo da borandeusi **(teuwaiseu)**
 
-Yeah come and set me set me set me free
+Yeah come and **set me set me set me free**
 
 
 
@@ -115,43 +118,43 @@ I’m gonna tell you straight
 
 No matter what they say (ei~)
 
-du jeomeul inneun Line an kkeunkyeo All my TWICE
+du jeomeul inneun Line an kkeunkyeo **All my TWICE**
 
 budichigo neomeojyeodo ireukyeo nal
 
-du nuni matdaeul ttaen Make me feel special
+du nuni matdaeul ttaen **Make me feel special**
 
 neoro inhae wanjeonhan naro Completed
 
-i mal mideodo dwae cause this is official uh!
+i mal mideodo dwae cause **this is official uh!**
 
 
 
-nae modeun geol georeo Risk it all
+nae modeun geol georeo **Risk it all**
 
-i sarang malgoneun Fade out
+i sarang malgoneun **Fade out**
 
-Gonna set me set me set me free
+Gonna **set me set me set me free**
 
 nae mam kkeutkkaji gal teni
 
 neon geunyang nal aneumyeon dwae
 
-Come and set me set me set me free
+Come and **set me set me set me free**
 
 
 
-naega wonhadeon Best of Me (najeongmo)
+naega wonhadeon Best of Me **(najeongmo)**
 
-ije naneun ready to be (sajimi)
+ije naneun ready to be **(sajimi)**
 
-Yeah gonna set me set me set me free (dachaejjeu)
+Yeah gonna **set me set me set me free** **(dachaejjeu)**
 
 jigeum All eyes on me
 
-nareul anajwo da borandeusi (teuwaiseu)
+nareul anajwo da borandeusi **(teuwaiseu)**
 
-Yeah come and set me set me set me free
+Yeah come and **set me set me set me free**
 
 
 </details>
@@ -163,141 +166,167 @@ Yeah come and set me set me set me free
   <summary>Click me to open fanchant</summary>
 
 
-(teu.wa.i.seu.set.mi.peu.ri)
+**(neomuna jjarithae teu! wa! i! seu!)**
 
-modeun geol ileobeorindaedo sanggwan eopseo
 
-jigeum i gamjeongi sunganira haedo
 
-ijeneun deo isang nae mam sumgigin shireo
+allami ullyeodae **Ring ring a ling**
 
-ne nunbichi nal jayuropge mandeuljana
+seoroe nungiri daeul ttaemada
 
+almyeonseo **bingbing doneunde**
 
+jeomjeom dagagajana I know it’s too late
 
-No No No No No
 
-uisikaji malgo nal anajwo
 
-deoneun ileul geotdo sumgil geotdo eopseo [cheer]
+**maeumsogeuroneun** da algo itjana
 
+gyeolgugeneun seoneul neomge dwel georaneun geol
 
+**I’m warning to myself**
 
-nae modeun geol georeo Risk it all
+neo geureomyeon an dwae
 
-i sarang malgoneun Fade out
+maebun, maecho, nae mami nae mameul chuwolhae
 
-Gonna set me set me set me free
+**Out of control (TWICE!)**
 
-nae mam kkeutkkaji gal teni
 
-neon geunyang nal aneumyeon dwae
 
-Come and set me set me set me free
+nareul gamsihaneun jeo **Spot spot spotlight**
 
+bichulsurok eodum sogeuro ppallyeo deureo
 
+kkeuchi boineunde **I know it’s not right**
 
-naega wonhadeon Best of Me (najeongmo)
+I can’t stop me, can’t stop me **(No eouo Ha!)**
 
-ije naneun ready to be (sajimi)
+nae ape noyeojin i **Red red red line**
 
-Yeah gonna set me set me set me free (dachaejjeu)
+geonneopyeone neowa nan imi nuneul matchwo
 
-jigeum All eyes on me
+neukkigo sipeo **jjarithan Highlight**
 
-nareul anajwo da borandeusi (teuwaiseu)
+I can’t stop me, can’t stop me **(No eouo)**
 
-Yeah come and set me set me set me free
 
 
+Ooh Ooh Ooh Ooh **(najeongmo)**
 
-eoriseogeun chungdongira haedo sanggwan eopseo
+Ooh Ooh Ooh Ooh **(sajimi)**
 
-nal gaduneun siseon ttawin imi Outta sight
+Ooh Ooh Ooh Ooh **(dachaejjeu)**
 
-jigeum urin naega kkumkkwowatdeon geudaero
+I can’t stop me, can’t stop me
 
-nunape geuryeojin wanbyeokan Fantasy
 
 
+nungama dallagu **Ya ya**
 
-No No No No No
+ttak han beonman No rules **Ah ah**
 
-singyeong sseujimalgo nal anajwo
+moreun cheokae jwo Lights off **tonight**
 
-deoneun ileul geotdo sumgil geotdo eopseo [cheer]
+na chameul su eopseul geo gata Losing myself
 
 
 
-nae modeun geol georeo Risk it all
+ijeneun **Turning back**
 
-i sarang malgoneun Fade out
+bulganeunghae nan jeomjeom deo gipeun eodume
 
-Gonna set me set me set me free
+neomuna **jjarithae**
 
-nae mam kkeutkkaji gal teni
+na nuneul gameullae
 
-neon geunyang nal aneumyeon dwae
+dasineun doragal su eopseul geonman gatae
 
-Come and set me set me set me free
+**Out of control (TWICE!)**
 
 
 
-naega wonhadeon Best of Me (najeongmo)
+nareul gamsihaneun jeo **Spot spot spotlight**
 
-ije naneun ready to be (sajimi)
+bichulsurok eodum sogeuro ppallyeo deureo
 
-Yeah gonna set me set me set me free (dachaejjeu)
+kkeuchi boineunde **I know it’s not right**
 
-jigeum All eyes on me
+I can’t stop me, can’t stop me **(No eouo Ha!)**
 
-nareul anajwo da borandeusi (teuwaiseu)
+nae ape noyeojin i **Red red red line**
 
-Yeah come and set me set me set me free
+geonneopyeone neowa nan imi nuneul matchwo
 
+neukkigo sipeo **jjarithan Highlight**
 
+I can’t stop me, can’t stop me **(No eouo)**
 
-I’m gonna tell you straight
 
-No matter what they say (ei~)
 
-du jeomeul inneun Line an kkeunkyeo All my TWICE
+Risky risky wiggy wigi
 
-budichigo neomeojyeodo ireukyeo nal
+**This is an emergency**
 
-du nuni matdaeul ttaen Make me feel special
+Help me, help me, somebody stop me
 
-neoro inhae wanjeonhan naro Completed
+**Cuz I know I can’t stop me**
 
-i mal mideodo dwae cause this is official uh!
+dabeun algo itjana
 
+**geunde gago itjana**
 
+ireogo sipji ana
 
-nae modeun geol georeo Risk it all
+nae ane naega **tto inna bwa**
 
-i sarang malgoneun Fade out
 
-Gonna set me set me set me free
 
-nae mam kkeutkkaji gal teni
+**[cheer]** naneun wonhaneunde
 
-neon geunyang nal aneumyeon dwae
+wonhaneun ge andwae
 
-Come and set me set me set me free
+Guilty nan sileunde
 
+I can’t stop me, can’t stop me, can’t stop me
 
 
-naega wonhadeon Best of Me (najeongmo)
 
-ije naneun ready to be (sajimi)
+nareul gamsihaneun jeo **Spot spot spotlight**
 
-Yeah gonna set me set me set me free (dachaejjeu)
+bichulsurok eodum sogeuro ppallyeo deureo
 
-jigeum All eyes on me
+kkeuchi boineunde **I know it’s not right**
 
-nareul anajwo da borandeusi (teuwaiseu)
+I can’t stop me, can’t stop me **(No eouo Ha!)**
 
-Yeah come and set me set me set me free
+nae ape noyeojin i Red red red line
+
+geonneopyeone neowa nan imi nuneul matchwo
+
+neukkigo sipeo **jjarithan Highlight**
+
+I can’t stop me, can’t stop me **(No eouo)**
+
+
+
+**(imnayeon yujeongyeon momojjang sanajjang)
+
+(bakjihyo minajjang gimdahyeon sonchaeyeong)
+
+(jojjeuwi jjarithae ai! kaen! seutap! mi!)**
+
+I can’t stop me, can’t stop me
+
+
+
+Ooh Ooh Ooh Ooh **(najeongmo)**
+
+Ooh Ooh Ooh Ooh **(sajimi)**
+
+Ooh Ooh Ooh Ooh **(dachaejjeu)**
+
+**(bichulsurok ppajyeodeureo teu! wa! i! seu!)**
 
 
 </details>

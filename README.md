@@ -12,7 +12,7 @@ for suggestion/feedback, please dm my IG
 
 ## 1 "Set Me Free" (English ver.)
 
-Youtube: [https://www.youtube.com/watch?v=Elp13qgVgHI&pp=ygURc2V0IG1lIGZyZWUgY2hhbnQ%3D](https://www.youtube.com/watch?v=Elp13qgVgHI&pp=ygURc2V0IG1lIGZyZWUgY2hhbnQ%3D)
+Youtube: [https://www.youtube.com/watch?v=Elp13qgVgHI](https://www.youtube.com/watch?v=Elp13qgVgHI)
 
 <details>
 
@@ -163,7 +163,7 @@ Yeah come and <ins>***set me set me set me free***</ins>
 
 ## 2 "I Can't Stop Me"
 
-Youtube: [https://www.youtube.com/watch?v=rhMm79NZQTw&ab_channel=TWICE](https://www.youtube.com/watch?v=rhMm79NZQTw&ab_channel=TWICE)
+Youtube: [https://www.youtube.com/watch?v=rhMm79NZQTw&ab_channel=TWICE](https://www.youtube.com/watch?v=rhMm79NZQTw)
 
 
 <details>
@@ -339,6 +339,8 @@ Ooh Ooh Ooh Ooh <ins>***(dachaejjeu)***</ins>
 
 
 ## 4 "More & More"
+
+Youtube: [https://www.youtube.com/watch?v=SUCNse5JoO4](https://www.youtube.com/watch?v=SUCNse5JoO4)
 
 <details>
 

@@ -44,7 +44,7 @@ nae modeun geol georeo <ins>***Risk it all***</ins>
 
 i sarang malgoneun <ins>***Fade out***</ins>
 
-Gonna set me <ins>***set me set me free***</ins>
+Gonna <ins>***set me set me set me free***</ins>
 
 nae mam kkeutkkaji gal teni
 
@@ -174,7 +174,7 @@ Youtube: [https://www.youtube.com/watch?v=rhMm79NZQTw&ab_channel=TWICE](https://
 <ins>***(neomuna jjarithae teu! wa! i! seu!)***</ins>
 
 
-<ins>***allami ullyeodae <ins>***Ring ring a ling***</ins>
+allami ullyeodae <ins>***Ring ring a ling***</ins>
 
 seoroe nungiri daeul ttaemada
 

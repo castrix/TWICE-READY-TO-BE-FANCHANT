@@ -523,6 +523,8 @@ geureoni han beon deo <ins>***(TWICE)***</ins>
 
 ## 12 "Feel Special"
 
+Youtube: [https://www.youtube.com/watch?v=mocGxuUoy_Y](https://www.youtube.com/watch?v=mocGxuUoy_Y)
+
 <details>
 
   <summary>Click me to open fanchant</summary>

@@ -690,146 +690,144 @@ I feel loved, I feel so special
 
 ## 14 "Fancy"
 
+Youtube: [https://www.youtube.com/watch?v=QRTB4hUJNbI](https://www.youtube.com/watch?v=QRTB4hUJNbI)
+
 <details>
 
   <summary>Click me to open fanchant</summary>
 
 
-(najeongmo! sajimi! dachaejjeu!
-
-jigeum neoegero gallae
-
-FANCY, TWICE!)
+<ins>***(najeongmo! sajimi! dachaejjeu! jigeum neoegero gallae FANCY, TWICE!)***</ins>
 
 
 
-jigeum haneul gureum saegeun Tropical yeah (yeah!)
+jigeum haneul gureum saegeun <ins>***Tropical yeah (yeah!)***
 
-jeo taeyang ppalganbit ne du bol gata
+jeo taeyang ppalganbit <ins>***ne du bol gata***
 
 Oh tell me I’m the only one baby
 
-I fancy you (fancy you!) I fancy you fancy you (TWICE!)
+I fancy you <ins>***(fancy you!)***</ins> I fancy you fancy you <ins>***(TWICE!)***</ins>
 
 
 
-It’s dangerous ttakkeumhae neon jangmi gata (yeah!)
+It’s dangerous ttakkeumhae <ins>***neon jangmi gata (yeah!)***
 
-gwaenchana jogeumdo nan geomnaji ana
+gwaenchana jogeumdo nan <ins>***geomnaji ana***
 
-deo sege kkok jaba Take my hand
+<ins>***deo sege kkok jaba***</ins> Take my hand
 
 jom wiheomhalgeoya deo wiheomhalgeoya baby
 
 
 
-dalkomhan (hey!) chokollit aiseukeurimcheoreom
+<ins>***dalkomhan (hey!)***</ins> chokollit aiseukeurimcheoreom
 
 nogabeorineun jigeum nae gibun So lovely
 
-kkamkkamhan (hey!) uju sok gajang banjjagineun
+<ins>***kkamkkamhan (hey!)***</ins> uju sok gajang banjjagineun
 
 jeo byeol jeo byeol geu yeope keun ne byeol
 
 
 
-geogi neo I fancy you amuna wonhaji ana
+<ins>***geogi neo I fancy you***</ins> amuna wonhaji ana
 
 Hey I love you (Love ya)
 
-geurae neo I fancy you kkumcheoreom haengbokaedo dwae
+<ins>***geurae neo I fancy you***</ins> kkumcheoreom haengbokaedo dwae
 
 Cause I need you (What)
 
 
 
-Fancy you
+<ins>***Fancy***</ins> you
 
 nuga meonjeo joahamyeon eottae
 
-Fancy you
+<ins>***Fancy***</ins> you
 
 jigeum neoegero gallae Fancy, Ooh
 
 
 
-maeil maeil nan jeongmal amugeotdo mothane
+<ins>***maeil maeil***</ins> nan jeongmal amugeotdo mothane
 
-Oh my May day ireoda keunil nael geot gateunde
+<ins>***Oh my May day***</ins> ireoda keunil nael geot gateunde
 
-Bang bang meoriga hollin deut Reseti dwae
+<ins>***Bang bang***</ins> meoriga hollin deut Reseti dwae
 
 eojjeomyeon joa ige manneungeonji molla S.O.S
 
 
 
-Swim swim neoran badae jamsuhami dwae
+<ins>***Swim swim***</ins> neoran badae jamsuhami dwae
 
-maeiri Birthday dalkomhae neowa naye Fantasy
+<ins>***maeiri Birthday***</ins> dalkomhae neowa naye Fantasy
 
-Dream dream machi kkumgata bol kkojibeobwa
+<ins>***Dream dream***</ins> machi kkumgata bol kkojibeobwa
 
-yojeum naye sangtae mesejin rallalla Baby
+<ins>***yojeum naye***</ins> sangtae mesejin rallalla Baby
 
 
 
-dalkomhan (hey!) chokollit aiseukeurimcheoreom
+<ins>***dalkomhan (hey!)***</ins> chokollit aiseukeurimcheoreom
 
 nogabeorineun jigeum nae gibun So lovely
 
-kkamkkamhan (hey!) uju sok gajang banjjagineun
+<ins>***kkamkkamhan (hey!)***</ins> uju sok gajang banjjagineun
 
 jeo byeol jeo byeol geu yeope keun ne byeol
 
 
 
-geogi neo I fancy you amuna wonhaji ana
+<ins>***geogi neo I fancy you***</ins> amuna wonhaji ana
 
 Hey I love you (Love ya)
 
-geurae neo I fancy you kkumcheoreom haengbokaedo dwae
+<ins>***geurae neo I fancy you***</ins> kkumcheoreom haengbokaedo dwae
 
 Cause I need you (What)
 
 
 
-Fancy you
+<ins>***Fancy***</ins> you
 
 nuga meonjeo joahamyeon eottae
 
-Fancy you
+<ins>***Fancy***</ins> you
 
-jigeum neoegero gallae Fancy, Ooh
+jigeum neoegero gallae <ins>***Fancy, Ooh***</ins>
 
 
 
-[cheer] yeongicheoreom huk sarajilkka
+<ins>***[cheer]***</ins> yeongicheoreom huk sarajilkka
 
 neul gadeuki dama neol du nune dama
 
-[cheer] saenggangmaneuro pogeunhaejyeo
+<ins>***[cheer]***</ins> saenggangmaneuro pogeunhaejyeo
 
 mollae dwieseo ana neol nochi aneullae
 
 
 
-geogi neo I fancy you amuna wonhaji ana
+<ins>***geogi neo I fancy you***</ins> amuna wonhaji ana
 
 Hey I love you (Love ya)
 
-geurae neo I fancy you kkumcheoreom haengbokaedo dwae
+<ins>***geurae neo I fancy you***</ins> kkumcheoreom haengbokaedo dwae
 
 Cause I need you (What)
 
 
 
-Fancy you
+<ins>***Fancy***</ins> you
 
 nuga meonjeo joahamyeon eottae
 
-Fancy you
+<ins>***Fancy***</ins> you
 
-jigeum neoegero gallae Fancy TWICE!
+jigeum neoegero gallae <ins>***Fancy TWICE!***</ins>
 
 
 

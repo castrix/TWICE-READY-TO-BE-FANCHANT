@@ -12,6 +12,8 @@ for suggestion/feedback, please dm my IG
 
 ## 1 "Set Me Free" (English ver.)
 
+Youtube: [https://www.youtube.com/watch?v=Elp13qgVgHI&pp=ygURc2V0IG1lIGZyZWUgY2hhbnQ%3D](https://www.youtube.com/watch?v=Elp13qgVgHI&pp=ygURc2V0IG1lIGZyZWUgY2hhbnQ%3D)
+
 <details>
 
   <summary>Click me to open fanchant</summary>
@@ -161,6 +163,9 @@ Yeah come and <ins>***set me set me set me free***</ins>
 
 ## 2 "I Can't Stop Me"
 
+Youtube: [https://www.youtube.com/watch?v=rhMm79NZQTw&ab_channel=TWICE](https://www.youtube.com/watch?v=rhMm79NZQTw&ab_channel=TWICE)
+
+
 <details>
 
   <summary>Click me to open fanchant</summary>
@@ -169,8 +174,7 @@ Yeah come and <ins>***set me set me set me free***</ins>
 <ins>***(neomuna jjarithae teu! wa! i! seu!)***</ins>
 
 
-
-allami ullyeodae <ins>***Ring ring a ling***</ins>
+<ins>***allami ullyeodae <ins>***Ring ring a ling***</ins>
 
 seoroe nungiri daeul ttaemada
 
@@ -312,9 +316,9 @@ I can’t stop me, can’t stop me <ins>***(No eouo)***</ins>
 
 <ins>***(imnayeon yujeongyeon momojjang sanajjang)
 
-(bakjihyo minajjang gimdahyeon sonchaeyeong)
+<ins>***(bakjihyo minajjang gimdahyeon sonchaeyeong)
 
-(jojjeuwi jjarithae ai! kaen! seutap! mi!)***</ins>
+<ins>***(jojjeuwi jjarithae ai! kaen! seutap! mi!)***</ins>
 
 I can’t stop me, can’t stop me
 

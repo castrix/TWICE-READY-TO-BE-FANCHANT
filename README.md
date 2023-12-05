@@ -314,9 +314,9 @@ I can’t stop me, can’t stop me <ins>***(No eouo)***</ins>
 
 
 
-<ins>***(imnayeon yujeongyeon momojjang sanajjang)
+<ins>***(imnayeon yujeongyeon momojjang sanajjang)***</ins>
 
-<ins>***(bakjihyo minajjang gimdahyeon sonchaeyeong)
+<ins>***(bakjihyo minajjang gimdahyeon sonchaeyeong)***</ins>
 
 <ins>***(jojjeuwi jjarithae ai! kaen! seutap! mi!)***</ins>
 

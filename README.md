@@ -1,4 +1,4 @@
-# Fanchant Twice Ready To Be
+# Fanchant / Cheering Guide: Twice Ready To Be
 
 Maintained by: Ihsan Fajar Ramadhan
 
